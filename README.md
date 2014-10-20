@@ -8,3 +8,5 @@ This is a brached made by Sophie.
 I love Karaoke and interesting experience.
 カラオケと面白い体験大好きです！
 
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+add me on facebook Sophie Chow
